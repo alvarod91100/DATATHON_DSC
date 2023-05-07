@@ -9,3 +9,5 @@ alvarod.911@gmail.com
 jasek201056@hotmail.com
 
 seb.neira@outlook.com
+
+⁨Carlos Verdaguer⁩ (waiting for his)
